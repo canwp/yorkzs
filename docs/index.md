@@ -9,7 +9,7 @@ keywords: 约克大学学位证, York University Diploma, 加拿大毕业证样�
 
 对于在加拿大留学的学子而言，**约克大学（York University）**不仅是加拿大规模第三大的顶尖综合性公立大学，更是无数人梦寐以求的学术殿堂。当毕业生顺利修满学分、通过考核后，所获得的约克大学学位证书（Diploma）便是其多年寒窗苦读的最佳见证。
 
-![澳大利亚迪肯大学毕业证及学位证文凭样本模版(Deakin University Diploma/Certificate of Degree)](deakin-diploma.jpg)
+![加拿大约克大学毕业证及学位证文凭样本模版(Deakin University Diploma/Certificate of Degree)](york-diploma.jpg)
 
 本文将基于约克大学官方颁发的真实硕士学位证书样本，从**视觉排版、核心文字框架、纹章与印章工艺、防伪技术细节**等多个维度进行全方位、深层次的独家解析，帮助大家清晰了解这所北美名校文凭的独特设计美学与防伪权重。
 
